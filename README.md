@@ -5,5 +5,3 @@ i didn't know what to name it.
 <p>
   hello my name is kingofnothing30 im just learning to code uuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuuummmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm i dont really know what to say im a pretty boring person.
   <p>
-
-hell there 
